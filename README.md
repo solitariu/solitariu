@@ -5,7 +5,7 @@
 - 📫 How to reach me through my GitHub profile or on my [LinkedIn](https://www.linkedin.com/in/fatine-b-9950391b2/)
 
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I got back to school while having a "successfull carreer" :) 
+- ⚡ Fun fact: I got back to school while having a "successful carreer" :) 
 
 <!---
 solitariu/solitariu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
